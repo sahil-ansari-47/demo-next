@@ -1,0 +1,4 @@
+bherachoda
+khankimagi
+gaandpeyazi
+ssdd
